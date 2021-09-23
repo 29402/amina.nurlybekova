@@ -1,2 +1,1 @@
-# amina.nurlybekova
 Wikipedia
